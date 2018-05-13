@@ -1,2 +1,2 @@
 
-to ja Ola
+to ja Ola w przyszlosci zrobie piekne portfolio
